@@ -6,7 +6,9 @@ Apakah Anda penggemar film, serial TV, atau konten eksklusif dari Disney, Marvel
 
 ### Apa itu Disney+ Hotstar MOD APK?
 Disney+ Hotstar MOD APK adalah aplikasi modifikasi dari versi resmi Disney+ Hotstar yang menyediakan akses penuh ke semua fitur premium, seperti:
+
 ![disney-hotstar-apk-tanpa-iklan](https://github.com/user-attachments/assets/f244fa37-5b58-44b2-8186-9a16cd76c7c9)
+
 Streaming tanpa iklan: Nikmati film dan serial favorit tanpa gangguan iklan.
 Konten premium gratis: Akses eksklusif ke film, serial, dan tayangan olahraga langsung.
 Unduhan tanpa batas: Unduh konten untuk ditonton offline kapan saja.
@@ -27,7 +29,9 @@ Unduh film dan serial favorit Anda dan tonton kapan saja tanpa koneksi internet.
 
 Pilihan Subtitle Multi-Bahasa
 Menyediakan berbagai bahasa subtitle, termasuk Bahasa Indonesia, untuk pengalaman menonton yang lebih nyaman.
+
 ![disney-hotstar-apk-gratis](https://github.com/user-attachments/assets/76665efd-010b-4893-8758-e7e637785774)
+
 Akses Olahraga Langsung
 Nikmati tayangan olahraga langsung seperti sepak bola, cricket, dan lainnya tanpa batas.
 
